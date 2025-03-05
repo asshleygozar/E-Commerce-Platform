@@ -1,2 +1,2 @@
 # E-Commmerce Website
-## Electronic and Gadgets Shop designed to be clean and neat
+## Men aesthetics clothes for winter, summer, spring, and autumn. 
